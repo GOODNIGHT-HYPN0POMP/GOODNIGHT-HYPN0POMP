@@ -12,6 +12,7 @@
 	➳ Busy : may be exhausted / have a low social battery, or am busy doing schoolwork / chores / other stuff, iwc but yew can still interact!!!
 	➳ Online : Same as looking for chat , i'm just probably at party island or something !!
       w2i is encouraged , i might miss your message otherwise !!!
+	  
 
 			INT LIST !?!
 	➳ STOMACHBOOK ENJOYERS!!!! I LOEVS TOMACHBOOK !!!! im so normal about sotmahcbookkAAAAAAAHJHAGJHUISAJHALJDS
@@ -53,8 +54,10 @@
 	
 			NAME ABBREVIATES + MEANINGS !!
 	➳ w2i: Whisper to interact !
+	➳ C + H: Cuddles and hiding behind me is okay + encouraged !! you can also cuddle in front of me i don't mind & love when people do that !! ^_^
 	➳ dniuf: do not interact unless friend
 	➳ dniuc: do not interact unless close
-	➳ C + H: Cuddles and hiding behind me is okay + encouraged !! you can also cuddle in front of me i don't mind & love when people do that !! ^_^
+	➳ iwc: interact with caution + care
+	➳ iwec: interact with extreme caution + care
 
 ![](https://komarev.com/ghpvc/?username=GOODNIGHT-HYPN0POMP&color=940066&style=plastic&label=stomachbook+enjoyers) 
