@@ -20,6 +20,7 @@
 	➳ bfdi/tpot fans
 	➳ ii fans
 	➳ reading enjoyers (?LMAO) (book fans ?? people who like reading ? idk.. )
+	➳ LMK FANS OMGAAHJAHJJGVASGASJH
 			um ... idk what else ... JUST INT IM COOL PLEASE !!!
 
 			DNI LIST !
