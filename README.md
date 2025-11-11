@@ -1,16 +1,56 @@
-## Hi there 👋
+###### <p align=center>i love stomachbook lots i love stummybook #im going to explode
 
-<!--
-**GOODNIGHT-HYPN0POMP/GOODNIGHT-HYPN0POMP** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+	HE / FAE!!
+		c*h PLEASE!!! anytime pls ! i have a cuddle comfort ^<^ INT PLSPLPSLPLSLSSS!!!!
+		spam followers will be blocked .. nothing against y'all though !! 
+                  
+			STATUS MEANINGS ! !!
+	➳ Offline: Hiding, dniuc probably upset / in a bad mood ,,
+	➳ Away : Offtab / afk  !
+	➳ Looking for chat : Interact!!!! PLEASE !!!! 
+	➳ Looking for roleplay : I never use this one .. maybe i'm in a roleplay on party island ?? or for looks ?.
+	➳ Busy : may be exhausted / have a low social battery, or am busy doing schoolwork / chores / other stuff, iwc but yew can still interact!!!
+	➳ Online : Same as looking for chat , i'm just probably at party island or something !!
+      w2i is encouraged , i might miss your message otherwise !!!
 
-Here are some ideas to get you started:
+			INT LIST !?!
+	➳ STOMACHBOOK ENJOYERS!!!! I LOEVS TOMACHBOOK !!!! im so normal about sotmahcbookkAAAAAAAHJHAGJHUISAJHALJDS
+	➳ phighting! fans
+	➳ dandys world fans
+	➳ bfdi/tpot fans
+	➳ ii fans
+	➳ reading enjoyers (?LMAO) (book fans ?? people who like reading ? idk.. )
+			um ... idk what else ... JUST INT IM COOL PLEASE !!!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+			DNI LIST !
+	➳ vivzie supporters
+	➳ bigoted (homophobic, transphobic, racist, ablist, sexist, fatphobic, etcetc)
+	➳ ragebaiters / people who love drama / bullies / hateful people
+	➳ ship controversy talk
+	➳ just dont be weird 2 me please ...
+	➳ the REALLY WEIRD / HATEFUL parts of my fandoms PLSSS dni y'all are gross freaks and its not cool bro ..
+	➳ people who are nsfw / suggestive on the safe server I WILL THROTTLE YOU
+
+			THIN ICE !
+	➳ helluva boss / hazbin hotel fans
+	➳ under 14 (immature)
+			idk ,, i will hide you / block you if you're weird
+         
+			BYI ! ?
+	➳ IM A MINOR !! DO NOT be sexual / suggestive to me .
+	➳ i make kms jokes + say the f slur (reclaiming) ! if you do not like this PLEASE tell me !!!
+	➳ i mirror the attitude of people i talk to and stuff , like the way you talk; if you will be hyper to me i will be to you etc etc !
+	➳ in general i'm pretty hyper and excited ! i tend to talk in caps and also type long paragraphs , if you want me to chill a bit i will just ask me !!
+	➳ i call everyone bro/vro + comrade + dude + pookie + oomfie (if we're friended) !
+	➳ i make some typos on purrpose + also i type fast so i may make a lot , if you use a screen reader or struggle to read typos then lmk and i can try to type better !! :D
+	➳ im scared to interact first a lot,, if we're friends & i don't int first its because im scared NOT BECAUSE I HATE YOU !!!
+	➳ please interact with me... im so lonely... i literally do not have ANYONE i consistently talk to besides my brother ...
+	➳ DONT BE AFRAID TO INT FIRST EVEN IF ITS JUST LIKE A ' HI ' PLEASE !!
+	➳ if yew know my other github account .. no yew don't okay ? okay ... smiles !
+			if you want me to not do any of these things PLEASEPLSPLSPLSPLS TEL ME!!!!! i don't want 2 make anyone uncomfortable !!
+	
+			NAME ABBREVIATES + MEANINGS !!
+	➳ w2i: Whisper to interact !
+	➳ dniuf: do not interact unless friend
+	➳ dniuc: do not interact unless close
+	➳ C + H: Cuddles and hiding behind me is okay + encouraged !! you can also cuddle in front of me i don't mind & love when people do that !! ^_^
