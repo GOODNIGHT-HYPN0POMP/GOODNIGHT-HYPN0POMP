@@ -1,4 +1,4 @@
-###### <p align=center>i love stomachbook lots i love stummybook #im going to explode
+###### <p align=center>i love stomachbook lots i love stomachbook i lovestomachbook love stummybook #im going to explode
 
 	HE / FAE!!
 		c*h PLEASE!!! anytime pls ! i have a cuddle comfort ^<^ INT PLSPLPSLPLSLSSS!!!!
@@ -46,7 +46,8 @@
 	➳ im scared to interact first a lot,, if we're friends & i don't int first its because im scared NOT BECAUSE I HATE YOU !!!
 	➳ please interact with me... im so lonely... i literally do not have ANYONE i consistently talk to besides my brother ...
 	➳ DONT BE AFRAID TO INT FIRST EVEN IF ITS JUST LIKE A ' HI ' PLEASE !!
-	➳ if yew know my other github account .. no yew don't okay ? okay ... smiles !
+	➳ i might not understand what you're saying sometimes .. i'm kinda mousebrained lwokey .. if my reply doesn't make sense w/ what you said please tell me but also try and simplify it pls ..
+	➳ if yew know my other github account .. no yew don't okay ? okay ... smiles ! 
 			if you want me to not do any of these things PLEASEPLSPLSPLSPLS TEL ME!!!!! i don't want 2 make anyone uncomfortable !!
 	
 			NAME ABBREVIATES + MEANINGS !!
@@ -54,3 +55,5 @@
 	➳ dniuf: do not interact unless friend
 	➳ dniuc: do not interact unless close
 	➳ C + H: Cuddles and hiding behind me is okay + encouraged !! you can also cuddle in front of me i don't mind & love when people do that !! ^_^
+
+![](https://komarev.com/ghpvc/?username=GOODNIGHT-HYPN0POMP&color=940066&style=plastic&label=stomachbook+enjoyers) 
